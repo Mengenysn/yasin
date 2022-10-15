@@ -1,0 +1,2 @@
+# yasin
+Mavi tik
